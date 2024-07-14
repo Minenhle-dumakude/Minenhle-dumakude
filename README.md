@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Minenhle-dumakude
+- 👀 I’m interested in Technology eg coding.
+- 🌱 I recently finished my first year as i was doing IT(programming foundation)..
+- 💞️ I’m looking to expand and showcase my knowledge in the workplace, as i also seek to gain experience.
+- 📫 How to reach me via my email **minenhle1dumakude@gmail.com** or contact me on my cell **0687636070**.
+- 😄 Pronouns: Mr.
+- ⚡ Fun fact: I thought you might come and view my profile.
